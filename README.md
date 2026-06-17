@@ -1,4 +1,4 @@
-# Hi! I'm Fernanda! 🎀
+# Hi! I'm Fer! 🎀
 **Also known as Picafresa**
 
 👩🏻‍💻 Artificial Intelligence and Data Science Engineering Student @ Tecnológico de Monterrey Campus Monterrey
